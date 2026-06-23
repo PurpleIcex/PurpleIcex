@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @PurpleIcex
-- 👀 I’m interested in doing your mom
-- 🌱 I’m currently learning biology and chemistry
+- lubie w dupe >.<
